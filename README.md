@@ -1,1 +1,0 @@
-# equipo1-SO-CESW1
